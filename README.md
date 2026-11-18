@@ -11,11 +11,11 @@ shapes, no photographs):
 
 - **Lead — Diplomacy:** Xi, Trump and Putin to meet in Shenzhen. China confirmed
   the first three-way summit of the three leaders, on Thursday on the sidelines
-  of the APEC meeting, to discuss nuclear risks, sanctions and Ukraine.
+  of the APEC meeting, to discuss nuclear arms, Iran and world peace.
 - **Europe · Conflict:** Bridges hit in Kyiv and Crimea. Russian missiles struck
   Kyiv's bridges over the Dnipro; a Ukrainian strike collapsed part of the Kerch
   Bridge — the second attack there in under a day.
-- **Middle East · Shipping:** Tankers mined off Hormuz. Two tankers struck mines
+- **Middle East · Shipping:** Tankers hit off Hormuz. Two tankers were hit
   and caught fire near the Strait of Hormuz; the USS Theodore Roosevelt arrived
   as the third US carrier in the region.
 - **Europe · Migration:** Five EU states (Germany, Denmark, Austria, Greece,
